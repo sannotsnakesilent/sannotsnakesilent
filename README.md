@@ -1,4 +1,9 @@
-Actually Working In Katana.wtf / Hermotet.ml / Silents Community / Renacimiento / Mango-clicker.glitch.me
+https://katanass.glitch.me/
+
+Working On:
+ - Katana  - Dax  - AstralMc  - Silents   
+ - SSKnowledge  - Nebula  - EzScreenShare 
+ - PenguinSwitcher  - Pragma
 
 https://discord.gg/iplogger | https://dsc.gg/vegetta | https://youtube.com/c/snakesilent
 <!---
