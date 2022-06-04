@@ -1,7 +1,5 @@
 Working On:
- - Katana  - Dax  - AstralMc  - Silents   
- - SSKnowledge  - Nebula  - EzScreenShare 
- - PenguinSwitcher  - Pragma
+ - Katana  - Silents  - Pragma
 
 https://discord.gg/iplogger | https://dsc.gg/vegetta | https://youtube.com/c/snakesilent | https://katanass.glitch.me/
 
